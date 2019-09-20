@@ -1,3 +1,3 @@
 # we
 ## QCZ & OLQ forever
-![our](https://github.com/boniuhezongjie/test/blob/master/our.jpg)
+![our](http://image.baidu.com/search/detail?ct=503316480&z=0&ipn=d&word=%E8%8A%B1%E6%9C%B5&step_word=&hs=0&pn=10&spn=0&di=244530&pi=0&rn=1&tn=baiduimagedetail&is=0%2C0&istype=2&ie=utf-8&oe=utf-8&in=&cl=2&lm=-1&st=-1&cs=4111676384%2C679439659&os=4067090089%2C3019876977&simid=0%2C0&adpicid=0&lpn=0&ln=1206&fr=&fmq=1568990940665_R&fm=result&ic=&s=undefined&hd=&latest=&copyright=&se=&sme=&tab=0&width=&height=&face=undefined&ist=&jit=&cg=&bdtype=0&oriquery=&objurl=http%3A%2F%2Fhbimg.b0.upaiyun.com%2F946f04a00c86e55dcfa878c1dea923d7cf1813f02fe1f-T8ZFQZ_fw658&fromurl=ippr_z2C%24qAzdH3FAzdH3Fi7wkwg_z%26e3Bv54AzdH3FrtgfAzdH3Fmdnamc80AzdH3F&gsm=0&rpstart=0&rpnum=0&islist=&querylist=&force=undefined)
