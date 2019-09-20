@@ -1,2 +1,2 @@
 # we
-## QCZ&OLQ forever
+## QCZ & OLQ forever
