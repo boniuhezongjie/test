@@ -1,1 +1,2 @@
-![GitHub]('C:/Users/ouxj/Desktop/our.jpg')
+# we
+![GitHub](C:/Users/ouxj/Desktop/our.jpg)
